@@ -1,6 +1,1 @@
-# universitydianmocompare
-# universitydianmocompare
-# universitydianmocompare
-# universitydianmocompare
-# universitydianmocompare
-# universitydianmocompare
+# данные предаставлены Иласоид и илби
